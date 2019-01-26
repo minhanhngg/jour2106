@@ -10,4 +10,4 @@ testing edit
 
 Here iss the photo test:
 
-![](https://www.google.com/images/branding/googlelogo/2x/googlelogo_color_272x92dp.png)
+![](https://www.dejohnpetservices.com/wp-content/uploads/cats-animals-kittens-background.jpg)
