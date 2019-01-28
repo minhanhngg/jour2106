@@ -1,13 +1,22 @@
 # HI! THIS IS ANH 🙋🏻‍♀️
 
-***Hi my name is Anh and I am from Vietnam. I am a full-time international student and currently in Year 1 - School of Communication. Starting this four-year journey abroad, I believe that Hong Kong will soon become my second home*** ❤️
+***Starting this four-year journey abroad, I believe that Hong Kong will soon become my second home*** ❤️
 
-### Possible drawbacks about me 
-* Unable to understand Chinese (both Mandarin and Cantonese)
-* item 2
+## About me
+* From Vietnam 🇻🇳🇻🇳🇻🇳
+* Year 1 student - School of Communication
+* Full-time international student
+* Chinese level 0 😅
 
-## Heading 1
-### Heading test
+## Interests
+* Taking photos
+* Travelling/Wandering around
+
+## Skills 
+* Basic video editing
+* Photoshop (*not really skillful but I can handle basic edits*)
+
+***Things to note*** : I cannot understand Chinese so I probably need some help with the Chinese parts in our project 😔 
 
 Here is the photo test:
 
