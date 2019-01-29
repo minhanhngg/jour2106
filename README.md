@@ -13,8 +13,8 @@
 * Travelling/Wandering around
 
 ## Skills 
-* Basic video editing
-* Photoshop (*not really skillful but I can handle basic edits*)
+- [x] Basic video editing
+- [x] Photoshop (*not really skillful but I can handle basic edits*)
 
 ***Things to note*** : I cannot understand Chinese so I probably need some help with the Chinese parts in our project 😔 
 
