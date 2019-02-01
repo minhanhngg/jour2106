@@ -22,9 +22,9 @@
 - [ ] Coding/Data visualization (yeah I know literally *NOTHING* but willing to learn with enthusiasm 🙈)
 
 ## My expectation taking this course
-* New friend :smile:
+* New friends :smile:
 * Learn basic knowledge about coding / making websites
-* Try this new field of data visualization
+* Try this new field of data visualization (*and put it into PRACTICE*)
 
 ***Things to note*** : My Chinese level is 0 😅 I cannot understand Chinese so I probably need some help with the language-related parts in our project in case I have to deal with some Chinese 😔 
 
