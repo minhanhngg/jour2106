@@ -14,12 +14,12 @@
 * Watching movies (*most of the times on Netflix* 🙈)
 
 ## Topics I would like to work on
-* I do not really have a topic I prefer but probably the ones with raw materials in English :smile:
+* I'm okay with any topic but probably prefer the ones with raw materials in English :smile:
 
 ## Skills 
 - [x] Basic video editing
 - [x] Photoshop (*not really skillful but I can handle basic edits*)
-- [ ] Coding/Data visualization (*yeah I really know NOTHING*)
+- [ ] Coding/Data visualization (yeah I know literally *NOTHING* but willing to learn with enthusiasm 🙈)
 
 ## My expectation taking this course
 * New friend :smile:
@@ -28,6 +28,8 @@
 
 ***Things to note*** : My Chinese level is 0 😅 I cannot understand Chinese so I probably need some help with the language-related parts in our project in case I have to deal with some Chinese 😔 
 
-Here is the photo test:
+*I'm really really sorry that I'am absent from the class today but I will make it up to you all my future teammates!!! Wish you all the best and HAPPY LUNAR NEW YEAR!!!!* :fireworks::confetti_ball:
 
-![](https://www.dejohnpetservices.com/wp-content/uploads/cats-animals-kittens-background.jpg)
+## Some other ways to contact me
+* [Facebook](https://www.facebook.com/minhanh.ngg)
+* [Instagram](https://www.instagram.com/minhanh_ngg/)
