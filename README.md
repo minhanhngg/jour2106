@@ -30,6 +30,3 @@
 
 *I'm really really sorry that I'am absent from the class today but I will make it up to you all my future teammates!!! Wish you all the best and HAPPY LUNAR NEW YEAR!!!!* :fireworks::confetti_ball:
 
-## Some other ways to contact me
-* [Facebook](https://www.facebook.com/minhanh.ngg)
-* [Instagram](https://www.instagram.com/minhanh_ngg/)
