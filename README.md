@@ -28,6 +28,6 @@
 
 ***Things to note*** : My Chinese level is 0 😅 I cannot understand Chinese so I probably need some help with the language-related parts in our project in case I have to deal with some Chinese 😔 
 
-*I'm really really sorry that I'am absent from the class today but I will make it up to you all my future teammates!!! Wish you all the best and HAPPY LUNAR NEW YEAR!!!!* :fireworks::confetti_ball:
+*I'm really really sorry that I'm absent from the class today but I will make it up to you all my future teammates!!! Wish you all the best and HAPPY LUNAR NEW YEAR!!!!* :fireworks::confetti_ball:
 
 ![](https://media1.tenor.com/images/ed97cd0ef2c9a1f3e8893e44a80632d4/tenor.gif?itemid=8158818)
